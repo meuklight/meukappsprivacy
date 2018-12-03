@@ -1,1 +1,1 @@
-# privacy.meuklight.github.io
+# meuklightprivacy
